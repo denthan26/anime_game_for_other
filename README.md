@@ -1,0 +1,1 @@
+# anime_game_for_other
